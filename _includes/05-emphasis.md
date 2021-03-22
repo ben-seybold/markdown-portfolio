@@ -1,1 +1,9 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+**Für nächstes Semester gibt es einen Immobilien-Bachelor in den Rechtswissenschaften**
+
+*Allerdings wird nach wie vor so gut wie alles in Online-Form angeboten*
+
+_Die **BIB** wird dementsprechend nur in reduzierter Form zugänglich sein_
+
+🧑‍🎓
+😆
+👨‍🎓
