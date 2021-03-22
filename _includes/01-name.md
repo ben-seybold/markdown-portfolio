@@ -1,1 +1,1 @@
-# Ben Seybold - making a Genius
+# University Regensburg - making a Genius
